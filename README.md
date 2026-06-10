@@ -22,7 +22,7 @@
 📫 How to reach me **z54lyu@uwaterloo.ca/ruibread@gmail.com**
 
 
-⚡ Fun fact **Cats: n > 9, Experience: t > 12 years in Minecraft, bedtime stories: horror**
+⚡ Fun fact **Cats: n > 9, Experience: t > 12 years in Minecraft, Bedtime stories: horror**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
